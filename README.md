@@ -1,4 +1,8 @@
 # Demo
 
-Bezveze opis.
+Bezveze opis!!!
 Hahahah. Tekst.
+
+Ovo je dodani tekst.
+
+Brrrrrrrrrrrrrr.
